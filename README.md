@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Lkdz9code
+- 👀 I’m interested in study 
+- 🌱 I’m currently learning front-end and system analyst 
+- 📫 How to reach me my Instagram isso @st1.lucas
